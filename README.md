@@ -1,0 +1,2 @@
+# calangoteca
+Calangoteca sem anúncios
